@@ -1,2 +1,0 @@
-# ballacey-ellenberg
-portafolio
